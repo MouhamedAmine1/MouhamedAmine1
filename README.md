@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MouhamedAmine1
+- 👀 I’m interested in developping and coding
+- 🌱 I’m currently learning it ingeneering
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me :you can rech me with my adress mouhamedaminebelhajsalah@gmail.com
